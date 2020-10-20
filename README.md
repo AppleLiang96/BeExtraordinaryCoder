@@ -8,5 +8,5 @@
 
 
 有什么疑问可以加下方的微信群直接问，脑图中肯定有很多表达不恰当或者错误的地方，欢迎大家给我指正！
-<img src="https://i.loli.net/2020/05/29/mDRcs2ZHELBfp3N.png" width="200" height="400" align="middle" />
+<img src="https://sm.ms/image/lxquQFd2te7iUhM" width="200" height="400" align="middle" />
 
